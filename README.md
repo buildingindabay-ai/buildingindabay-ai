@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm Sav, the creator of Building in da Bay and here's where you'll find most of the work featured in my videos!
+Few quick facts about me
+
+-> I'm currently trying to juggle a full-time engineering role, a passion for physics and love for programming
+
+-> I'm obsessed and fascinated with space exploration and would love to chat if you are too!
+
+-> I'm a life-long learner (so any critique on my work is welcome and highly appreciated!
+
+~ A quote that I always think about often: 
+
+The faster you go, the less time you experience. It’s like He’s inviting us to explore the universe, you know (Andy Weir, Project Hail Mary)
